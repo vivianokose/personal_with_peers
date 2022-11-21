@@ -2,7 +2,8 @@
 
 ## Do Hard things
 
-* We are working with a crew *
+*We are working with a crew*
+
 - I see us doing great things
 
 # Yes we can!!!
